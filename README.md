@@ -1,0 +1,1 @@
+# generic-school.github.io
